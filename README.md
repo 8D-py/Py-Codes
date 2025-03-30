@@ -1,1 +1,1 @@
-[![DICTIONARY-Vid](https://img.youtube.com/shorts/Fjw3fCyaIoQ/0.jpg)](https://m.youtube.com/shorts/Fjw3fCyaIoQ)
+[![C++_dictionary-Vid](https://youtube.com/shorts/OL4jygBy7Cw?si)](https://youtube.com/shorts/OL4jygBy7Cw?si)
